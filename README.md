@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Khushi-31-hub
-- 👀 I’m interested in new innovative thing
+- 👀 I’m interested in new innovative things
 - 🌱 I’m currently learning AIML
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... khushishyam0511@gmail.com
